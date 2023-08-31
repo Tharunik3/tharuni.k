@@ -1,2 +1,2 @@
 # Tharuni
-be happy like me
+be happy always
